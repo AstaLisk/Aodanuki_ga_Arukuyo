@@ -1,0 +1,2 @@
+# Aodanuki_ga_Arukuyo
+みんな大好き青ダヌキが歩くよwwww
